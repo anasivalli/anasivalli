@@ -19,3 +19,4 @@ I'm Ana, a 21 years old student from Brazil.
 
 ## Contact
 - [Ana Beatriz Sivalli](https://www.linkedin.com/in/ana-beatriz-sivalli-pinheiro-149a0a290/) on LinkedIn
+- anabeatrizsivalli@gmail.com  on Email
